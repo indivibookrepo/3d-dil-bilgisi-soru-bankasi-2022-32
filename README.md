@@ -1,0 +1,1 @@
+# 3d-dil-bilgisi-soru-bankasi-2022-32
